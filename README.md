@@ -13,6 +13,7 @@ Taken! - beloved: Rams! 15.06 !!
 i like troops as yall can see
 
 AUDHD
+
 ---------------------
 DNI and BYI
 
@@ -39,6 +40,9 @@ I WILL hide you if i feel umcomfortable.
 Also i won't tolerate any hate towards me or my friends/beloved
 
 I WON'T join parties. I'm on a party alredy with mah friends and beloved.
+
+15.06, i'm grateful for everything rams <3
+
 ------------------
 
 Enjoy a image of troops i took from a video below!
