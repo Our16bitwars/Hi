@@ -10,7 +10,7 @@ i can be harsh and cold at first but i'm usually nice
 
 I'm transmasc btw wow
 
-Taken! - beloved: Rams! 15.06 !! 
+Taken!(platonic) - beloved: Rams! /p
 
 i like troops as yall can see
 
