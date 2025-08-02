@@ -21,7 +21,7 @@ AUDHD
 I have anxiety also.
 
 ---------------------
-DNI and BYI
+DNI
 
 ★dni
 
@@ -37,8 +37,14 @@ Homophobics
 
 Trump supporters
 
+Proshippers/darkshippers
+
+Islamphobic
+
+
 -----------------
 BYI:🎁
+
 I'm fine with you c+h me and stuff but if i'm with my beloved or friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind!
 
 I WILL hide you if i feel umcomfortable.
@@ -48,6 +54,14 @@ Also i won't tolerate any hate towards me or my friends/beloved
 I WON'T join parties. I'm on a party alredy with mah friends and beloved.
 
 15.06, i'm grateful for everything rams <3
+
+Me nd my beloved + online sister 💝 /p
+(ART MADE BY ME!!!)
+ 
+<img width="1378" height="1378" alt="IFUUDOUDOU (doodle)_20241224111040" src="https://github.com/user-attachments/assets/2d81ea04-c124-4a45-ba43-26e62b1fe848" />
+
+
+
 
 ------------------
 
