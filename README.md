@@ -6,6 +6,8 @@ Howdy, i'm kiyo or 16bit
 
 She/they/he
 
+Birthday is 07/02!! 
+
 i can be harsh and cold at first but i'm usually nice
 
 I'm transmasc btw wow
