@@ -53,6 +53,8 @@ Also i won't tolerate any hate towards me or my friends/beloved
 
 I WON'T join parties. I'm on a party alredy with mah friends and beloved.
 
+-------------------
+
 15.06, i'm grateful for everything rams <3
 
 Me nd my beloved 💝 /p
