@@ -1,7 +1,3 @@
-CLICK HERE BYI!! 
-
-
-
 
 ★Troops are coming!★
 
