@@ -19,7 +19,7 @@ i like troops as yall can see
 
 AUDHD
 
-I have anxiety also.
+I have anxiety and Attachment issues with slight trauma.
 
 ---------------------
 DNI
@@ -53,6 +53,8 @@ I WILL hide you if i feel umcomfortable.
 Also i won't tolerate any hate towards me or my friends/beloved
 
 I WON'T join parties. I'm on a party alredy with mah friends and beloved.
+
+If i stop talking, im not mad at you. Its just my social battery at zero, takes a bit to recharge so be patient..
 
 -------------------
 
