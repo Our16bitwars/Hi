@@ -55,12 +55,10 @@ I WON'T join parties. I'm on a party alredy with mah friends and beloved.
 
 15.06, i'm grateful for everything rams <3
 
-Me nd my beloved + online sister 💝 /p
-(ART MADE BY ME!!!)
- 
-<img width="1378" height="1378" alt="IFUUDOUDOU (doodle)_20241224111040" src="https://github.com/user-attachments/assets/2d81ea04-c124-4a45-ba43-26e62b1fe848" />
+Me nd my beloved 💝 /p
 
 
+![IMG_0219](https://github.com/user-attachments/assets/9955616e-6b2b-4c26-ab7f-d50e288c5489)
 
 
 ------------------
