@@ -26,6 +26,8 @@ I have anxiety and Attachment issues with slight trauma and trust issues.
 
 Also struggling with suicidal thoughts..
 
+(I might commit Soon.. Idk.)
+
 ---------------------
 DNI
 
