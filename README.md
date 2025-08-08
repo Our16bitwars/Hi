@@ -4,7 +4,7 @@
 
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
 
-Howdy, i'm kiyo or 16bit
+Howdy, i'm kiyo, 16bit or kaito/kai
 
 She/they/he
 
