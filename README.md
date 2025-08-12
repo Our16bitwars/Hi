@@ -24,7 +24,7 @@ I have anxiety and Attachment issues with slight trauma and trust issues.
 
 ↓
 
-Might have depression, waiting diagnosis.
+Diagnosis came.. I luckly don't have depression...
 
 Also struggling with suicidal thoughts..
 
