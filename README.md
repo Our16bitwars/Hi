@@ -81,4 +81,15 @@ Enjoy a image of troops i took from a video below!
 ↓
 
 ![IMG_2248](https://github.com/user-attachments/assets/8c546d77-4bc6-448a-945d-26877d44f818)
+
+
+
+
+
+# check one of my comfort songs out!
+
+
+https://youtu.be/cgbNAcrW3m0?si=g53AzXosEAT9bEE5
+
+
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
