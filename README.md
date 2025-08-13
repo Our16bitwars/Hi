@@ -84,6 +84,12 @@ Enjoy a image of troops i took from a video below!
 
 
 
+# My "friend" obug being dramatic: i feel unloved!(she has 2 partners)
+
+My reaction♥ ↓
+
+![IMG_2366](https://github.com/user-attachments/assets/1247a444-3de2-472b-a0df-9d713ce9e444)
+
 
 
 # check one of my comfort songs out!
