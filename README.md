@@ -75,9 +75,6 @@ Me nd my beloved 💝 /p
 
 ------------------
 
-Enjoy a image of troops i took from a video below!
-↓
-
 ![IMG_2248](https://github.com/user-attachments/assets/8c546d77-4bc6-448a-945d-26877d44f818)
 
 
@@ -92,6 +89,9 @@ Enjoy a image of troops i took from a video below!
 
 
 https://youtu.be/cgbNAcrW3m0?si=g53AzXosEAT9bEE5
+
+
+"Girlfriend's girlfriends never could be mine." /ref
 
 
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
