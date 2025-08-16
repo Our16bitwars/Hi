@@ -1,5 +1,9 @@
 ★
 
+"Shoot into the steel, the alarm from a bigman said"
+
+"Relative and absolute saturation vapor pressures for too convenient adults' convenience, still the future ignored the past, one after another"
+
 "Girlfriend's girlfriends never could be mine." /ref
 
 ★Troops are coming!★
@@ -84,6 +88,17 @@ Me nd my beloved 💝 /p
 #
  
 ![IMG_2366](https://github.com/user-attachments/assets/1247a444-3de2-472b-a0df-9d713ce9e444)
+
+
+
+
+
+#
+
+
+
+![IMG_2362](https://github.com/user-attachments/assets/752238a7-e7a4-4d70-896a-9576cda2e122)
+
 
 
 
