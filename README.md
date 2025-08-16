@@ -1,5 +1,7 @@
 ★
 
+"Girlfriend's girlfriends never could be mine." /ref
+
 ★Troops are coming!★
 
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
@@ -101,10 +103,6 @@ https://youtu.be/l9q_KrrdEB8?si=GfxGVPRQYW-UIJur
 
 
 https://youtu.be/AHjxLoeYIoI?si=53uUddkOoA-vvHWn
-
-
-
-"Girlfriend's girlfriends never could be mine." /ref
 
 
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
