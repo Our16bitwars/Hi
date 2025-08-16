@@ -85,10 +85,23 @@ Me nd my beloved 💝 /p
 
 
 
-# check one of my comfort songs out!
+# check out my comfort songs out!
 
 
 https://youtu.be/cgbNAcrW3m0?si=g53AzXosEAT9bEE5
+
+
+https://youtu.be/UBbMnphYv9Y?si=KP1mMAKeMEMbmwz-
+
+
+https://youtu.be/hmDK_uJu7kQ?si=HVLj65QhCuv7Beej
+
+
+https://youtu.be/l9q_KrrdEB8?si=GfxGVPRQYW-UIJur
+
+
+https://youtu.be/AHjxLoeYIoI?si=53uUddkOoA-vvHWn
+
 
 
 "Girlfriend's girlfriends never could be mine." /ref
