@@ -24,16 +24,14 @@ I have anxiety and Attachment issues with slight trauma and trust issues.
 
 ↓
 
-Diagnosis came.. I luckly don't have depression...
 
-Also struggling with suicidal thoughts..
+Also struggling with suicidal thoughts.
 
-(I might commit Soon.. Idk.)
+(I might commit Soon. Idk.)
 
 ---------------------
 DNI
 
-★dni
 
 Pedos
 
@@ -84,10 +82,8 @@ Enjoy a image of troops i took from a video below!
 
 
 
-# My "friend" obug being dramatic: i feel unloved!(she has 2 partners)
-
-My reaction♥ ↓
-
+#
+ 
 ![IMG_2366](https://github.com/user-attachments/assets/1247a444-3de2-472b-a0df-9d713ce9e444)
 
 
