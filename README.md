@@ -105,7 +105,7 @@ Me nd my beloved 💝 /p
 
 
 
-# check out my comfort songs out!
+# check out my comfort songs !!
 
 
 https://youtu.be/cgbNAcrW3m0?si=g53AzXosEAT9bEE5
