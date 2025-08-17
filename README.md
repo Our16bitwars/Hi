@@ -1,5 +1,9 @@
 ★
 
+![IMG_2248](https://github.com/user-attachments/assets/6e2aa78f-ffde-439d-ab77-b039097333e7)
+![IMG_2362](https://github.com/user-attachments/assets/b9f90140-f759-43dd-864a-98e37dbf719f)
+
+
 "Shoot into the steel, the alarm from a bigman said"
 
 "Relative and absolute saturation vapor pressures for too convenient adults' convenience, still the future ignored the past, one after another"
