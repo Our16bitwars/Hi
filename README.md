@@ -36,7 +36,7 @@ I have anxiety and Attachment issues with slight trauma and trust issues.
 
 Also struggling with suicidal thoughts.
 
-(I might commit Soon. Idk.)
+Usually goofing around on pjsk area mostly with my beloved or with friends :P
 
 ---------------------
 DNI
