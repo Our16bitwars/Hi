@@ -7,7 +7,7 @@
 
 "Relative and absolute saturation vapor pressures for too convenient adults' convenience, still the future ignored the past, one after another"
 
-"Girlfriend's girlfriends never could be mine." /ref
+"Girlfriend's girlfriends never could be mine" /ref
 
 ★Troops are coming!★
 
