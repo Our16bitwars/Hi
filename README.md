@@ -29,7 +29,7 @@ i like troops as yall can see
 
 AUDHD
 
-I have anxiety and Attachment issues with slight trauma and trust issues.
+I have anxiety and Attachment issues with slight trauma, trust issues and Anger issues. Plz respect my boundaries.
 
 ↓
 
