@@ -17,9 +17,9 @@ Howdy, i'm kiyo, 16bit or kaito/kai
 
 She/they/he
 
-Birthday is 07/02!! 
+Birthday is 07/02!!
 
-i can be harsh and cold at first but i'm usually nice
+i can be harsh and cold at first but i'm usually nice <- except to people i find annoying/annoy me. I'll be way more cold/rude. 
 
 I'm transmasc btw wow
 
@@ -61,6 +61,10 @@ Islamphobic
 
 -----------------
 BYI:🎁
+
+If i find you annoying/ start annoying me, i WILL be rude. Like just go away from me. if i said to leave me alone. Just leave me the fuck alone.
+/directed to someone called "Me ril"
+
 
 I'm fine with you c+h me and stuff but if i'm with my beloved or friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind!
 
