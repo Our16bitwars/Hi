@@ -7,7 +7,9 @@
 
 "Relative and absolute saturation vapor pressures for too convenient adults' convenience, still the future ignored the past, one after another"
 
-"Girlfriend's girlfriends never could be mine" /ref
+"Girlfriend's girlfriends never could be mine"
+
+"headshot baby bang bang you're dead!"
 
 ★Troops are coming!★
 
@@ -131,4 +133,5 @@ https://youtu.be/fkyb6r_Qwxg?si=US8J5q9iZWLMMeuL
 
 
 https://youtu.be/XhtbdssFesk?si=vZxfj3T1T54tITU6
+
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
