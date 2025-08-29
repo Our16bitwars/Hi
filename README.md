@@ -33,7 +33,7 @@ AUDHD
 
 I have anxiety,social anxiety, Attachment issues with trauma, trust issues,Anger issues,im sensitive. And panic attacks/anxiety attacks.  Please respect my boundaries.
 
-If i start apologizing out of nowhere, Its my trauma response, sorry if i bother u w/ that
+Most of things i do  Its my trauma response, sorry if i bother u w/ that
 
 
 ↓
