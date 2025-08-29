@@ -31,7 +31,10 @@ i like troops as yall can see
 
 AUDHD
 
-I have anxiety,social anxiety, Attachment issues with slight trauma, trust issues,Anger issues,im sensitive. And panic attacks/anxiety attacks.  Please respect my boundaries.
+I have anxiety,social anxiety, Attachment issues with trauma, trust issues,Anger issues,im sensitive. And panic attacks/anxiety attacks.  Please respect my boundaries.
+
+If i start apologizing out of nowhere, Its my trauma response, sorry if i bother u w/ that
+
 
 ↓
 
