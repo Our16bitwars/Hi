@@ -1,17 +1,14 @@
+![IMG_2248](https://github.com/user-attachments/assets/6949ff89-3041-44b2-a1c7-ea2032bebef3)
+
+
 ★
 
-(Fun fact abt the pic below, i made a skin based on the soldier on the left ^^ i usually use that skin soo yep :D)
-
-![IMG_2248](https://github.com/user-attachments/assets/6e2aa78f-ffde-439d-ab77-b039097333e7)
+(Fun fact abt the pic above, i made a skin based on the soldier on the left ^^ i usually use that skin soo yep :D)
 
 
 "Shoot into the steel, the alarm from a bigman said"
 
 "Relative and absolute saturation vapor pressures for too convenient adults' convenience, still the future ignored the past, one after another"
-
-"Girlfriend's girlfriends never could be mine"
-
-"headshot baby bang bang you're dead!"
 
 ★Troops are coming!★
 
