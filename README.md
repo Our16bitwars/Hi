@@ -1,6 +1,6 @@
 ★
 
-(Fun fact abt the pic below, i made a skin based on the soldier of the right ^^ i usually use that skin soo yep :D)
+(Fun fact abt the pic below, i made a skin based on the soldier on the left ^^ i usually use that skin soo yep :D)
 
 ![IMG_2248](https://github.com/user-attachments/assets/6e2aa78f-ffde-439d-ab77-b039097333e7)
 
