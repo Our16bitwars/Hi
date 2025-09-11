@@ -12,7 +12,7 @@
 
 ★Troops are coming!★
 
-# -----------------------
+# 
 
 Intro! (im remaking this sometime idk)
 
@@ -44,7 +44,7 @@ Also struggling with suicidal thoughts.
 
 Usually goofing around on pjsk area mostly with my beloved or with friends :P
 
-# ---------------------
+# 
 DNI
 
 
@@ -65,7 +65,7 @@ Proshippers/darkshippers
 Islamphobic
 
 
-# -----------------
+# 
 BYI:🎁
 
 If i find you annoying/ start annoying me, i WILL be rude. Like just go away from me. if i said to leave me alone. Just leave me the fuck alone.
@@ -83,13 +83,13 @@ I WON'T join parties. I'm on a party alredy with mah friends and beloved.
 If i stop talking, im not mad at you. Its just my social battery at zero, takes a bit to recharge so be patient..
 
 
-# ------------------
+# 
 
 ![IMG_2248](https://github.com/user-attachments/assets/8c546d77-4bc6-448a-945d-26877d44f818)
 
 
 
- # -----------------
+ #
  
 ![IMG_2366](https://github.com/user-attachments/assets/1247a444-3de2-472b-a0df-9d713ce9e444)
 
@@ -97,7 +97,7 @@ If i stop talking, im not mad at you. Its just my social battery at zero, takes 
 
 
 
-# -----------------
+# 
 
 
 
