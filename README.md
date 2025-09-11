@@ -26,7 +26,7 @@ i can be harsh and cold at first but i'm usually nice <- except to people i find
 
 I'm transmasc btw wow
 
-Taken!(platonic) - beloved: Rams! /p
+Taken platonically by rams ^_^ (11.09)
 
 i like troops as yall can see
 
@@ -81,15 +81,6 @@ Also i won't tolerate any hate towards me or my friends/beloved
 I WON'T join parties. I'm on a party alredy with mah friends and beloved.
 
 If i stop talking, im not mad at you. Its just my social battery at zero, takes a bit to recharge so be patient..
-
-# -------------------
-
-15.06, i'm grateful for everything rams <3
-
-Me nd my beloved 💝 /p
-
-
-![IMG_0219](https://github.com/user-attachments/assets/9955616e-6b2b-4c26-ab7f-d50e288c5489)
 
 
 # ------------------
