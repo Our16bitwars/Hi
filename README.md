@@ -78,9 +78,12 @@ I WILL hide you if i feel umcomfortable.
 
 Also i won't tolerate any hate towards me or my friends/beloved
 
-I WON'T join parties. I'm on a party alredy with mah friends and beloved.
+I WON'T join parties. I'm on a party alredy with mah friends .
 
 If i stop talking, im not mad at you. Its just my social battery at zero, takes a bit to recharge so be patient..
+
+
+I may sometimes sleep with PT online . Its usually at my name but feel free to c+h! i js won't answer you ^^
 
 
 # 
