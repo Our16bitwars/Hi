@@ -72,11 +72,11 @@ If i find you annoying/ start annoying me, i WILL be rude. Like just go away fro
 /directed to someone called "Me ril"
 
 
-I'm fine with you c+h me and stuff but if i'm with my beloved or friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind!
+I'm fine with you c+h me and stuff but if i'm with my beloved or friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind .
 
-I WILL hide you if i feel umcomfortable.
+I WILL hide and block you if i feel umcomfortable.
 
-Also i won't tolerate any hate towards me or my friends/beloved
+i won't tolerate any hate towards me or my friends/beloved
 
 I WON'T join parties. I'm on a party alredy with mah friends .
 
