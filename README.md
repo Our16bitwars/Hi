@@ -44,6 +44,8 @@ Also struggling with suicidal thoughts.
 
 Usually goofing around on pjsk area mostly with my beloved or with friends :P
 
+/ᐠ > ˕ <マ
+
 # 
 DNI
 
