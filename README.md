@@ -16,7 +16,7 @@
 
 Intro! (im remaking this sometime idk)
 
-Howdy, i'm kiyo, 16bit or kaito/kai
+Howdy, call me kiyo, 16bit, kaito/kai or Adachi rei/adachi 
 
 She/they/he
 
@@ -68,10 +68,9 @@ Islamphobic
 
 
 # 
-BYI:🎁
+☄️BYI:
 
 If i find you annoying/ start annoying me, i WILL be rude. Like just go away from me. if i said to leave me alone. Just leave me the fuck alone.
-/directed to someone called "Me ril"
 
 
 I'm fine with you c+h me and stuff but if i'm with my beloved or friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind .
