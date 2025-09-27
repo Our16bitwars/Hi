@@ -1,7 +1,7 @@
 ![IMG_2248](https://github.com/user-attachments/assets/6949ff89-3041-44b2-a1c7-ea2032bebef3)
 
 
-★
+★ ☆ ★
 
 (Fun fact abt the pic above, i made a skin based on the soldier on the left ^^ i usually use that skin soo yep :D)
 
