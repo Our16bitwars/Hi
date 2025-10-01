@@ -87,6 +87,10 @@ If i stop talking, im not mad at you. Its just my social battery at zero, takes 
 I may sometimes sleep with PT online . Its usually at my name but feel free to c+h! i js won't answer you ^^
 
 
+Im pretty shy and the best i can do is go with you and crown/compliment ur skin!! but feel free to bmf :3
+
+
+
 # 
 
 ![IMG_2248](https://github.com/user-attachments/assets/8c546d77-4bc6-448a-945d-26877d44f818)
