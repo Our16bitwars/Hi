@@ -44,7 +44,7 @@ Also struggling with suicidal thoughts.
 
 Usually goofing around on pjsk area mostly with my beloved or with friends :P
 
-/ᐠ > ˕ <マ
+/ᐠ > ˕ <マ I WAS AT A BREADLINE!!! (and wiki also!) 30.09
 
 # 
 DNI
