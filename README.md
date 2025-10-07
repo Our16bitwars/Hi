@@ -29,6 +29,10 @@ I'm transmasc btw wow
 ![IMG_0770](https://github.com/user-attachments/assets/d1b3ad27-e095-4058-a540-62459dcc8111)
 
 
+Taken platonically - 11.09(?)
+
+
+
 i like troops as yall can see
 
 AUDHD
