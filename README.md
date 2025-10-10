@@ -97,6 +97,13 @@ I may sometimes sleep with PT online . Its usually at my name but feel free to c
 Im pretty shy and the best i can do is go with you and crown/compliment ur skin!! but feel free to bmf :3
 
 
+My skin style changes ALOT on PT since i usually test styles, use for somedays and maybe switch to old style or try new ones. Plz don't assume i copied. I got copied once and it sucks.
+
+
+
+![IMG_0837](https://github.com/user-attachments/assets/e204510d-fa4e-4bfe-bfa2-f75cf8a35b67) She is coming closer
+
+
 
 # 
 
