@@ -101,7 +101,8 @@ My skin style changes ALOT on PT since i usually test styles, use for somedays a
 
 
 
-![IMG_0837](https://github.com/user-attachments/assets/e204510d-fa4e-4bfe-bfa2-f75cf8a35b67) She is coming closer
+![IMG_0837](https://github.com/user-attachments/assets/e204510d-fa4e-4bfe-bfa2-f75cf8a35b67) 
+She is coming closer
 
 
 
