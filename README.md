@@ -32,7 +32,7 @@ I'm transmasc btw wow
 I like sasakure uk
 
 
-27.09 - @liminalheaven ♡
+27.09 - @liminalheaven ♡ (thank you.<3)
 
 
 i like troops as yall can see
