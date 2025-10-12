@@ -32,7 +32,7 @@ I'm transmasc btw wow
 I like sasakure uk
 
 
-27.09 - @liminalheaven ♡ (thank you.<3)
+27.09 - @liminalheaven ♡ (thank you for giving me a reason to live. I love you)
 
 
 i like troops as yall can see
@@ -44,12 +44,8 @@ I have anxiety,social anxiety, Attachment issues with trauma, trust issues,Anger
 Most of things i do  Its my trauma response, sorry if i bother u w/ that
 
 
-↓
 
-
-Also struggling with suicidal thoughts.
-
-Usually goofing around on pjsk area mostly with my beloved or with friends :P
+Usually goofing around on pjsk area mostly with friends or alone  :P
 
 /ᐠ > ˕ <マ I WAS AT A BREADLINE!!! (and wiki also!) 30.09
 
@@ -84,13 +80,13 @@ Heavy IWEC (unless dino or rosalina/@liminalheaven.)for now, im going through pe
 If i find you annoying/ start annoying me, i WILL be rude. Like just go away from me. if i said to leave me alone. Just leave me the fuck alone.
 
 
-I'm fine with you c+h me and stuff but if i'm with my beloved or friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind .
+I'm fine with you c+h me and stuff but if i'm with my friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind .
 
 I WILL hide and block you if i feel umcomfortable.
 
-i won't tolerate any hate towards me or my friends/beloved
+i won't tolerate any hate towards me or my friends
 
-I WON'T join parties. I'm on a party alredy with mah friends .
+I WON'T join parties. I'm on a party alredy with my friends .
 
 If i stop talking, im not mad at you. Its just my social battery at zero, takes a bit to recharge so be patient..
 
