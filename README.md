@@ -76,8 +76,7 @@ BYI:
 
 Heavy IWEC (unless dino, rosalina/@liminalheaven or viena/@yuri-ful)for now, im going through personal things and my mental health is declined pretty badly. So again, IWEC please unless i say otherwise or you are the 3 people mentioned above. Thank you
 
-11.10.2025 , 6:22 am .
-It's over.
+
 
 If i find you annoying/ start annoying me, i WILL be rude. Like just go away from me. if i said to leave me alone. Just leave me the fuck alone.
 
