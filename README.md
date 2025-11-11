@@ -1,3 +1,10 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+Stuff i listen to!!!
+
+
+
+
 ![IMG_2248](https://github.com/user-attachments/assets/6949ff89-3041-44b2-a1c7-ea2032bebef3)
 
 
