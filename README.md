@@ -38,15 +38,17 @@ I'm transmasc btw wow
 
 I like sasakure uk
 
+Taken! 14.10 
+I luv my gf <3
+
 
 27.09 - @liminalheaven ♡ (thank you for giving me a reason to live. I love you)
 
 
 i like troops as yall can see
 
-AUDHD
+Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety, social anxiety & panic disorder.
 
-I have anxiety,social anxiety, Attachment issues with trauma, trust issues,Anger issues,im sensitive. And panic attacks/anxiety attacks.  Please respect my boundaries.
 
 Most of things i do  Its my trauma response, sorry if i bother u w/ that
 
