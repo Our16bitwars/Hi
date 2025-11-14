@@ -59,11 +59,18 @@ If i hide behind someone completely, showing like almost nothing of my skin or h
 
 
 My closest friends are
+(Listed by how close i am to them!)
+
 ♡Rosalina
+
 ♡Rae
+
 ♡Hika
+
 ♡Toya
+
 ♡Mafu
+
 ♡Izzy
 
 Im mostly with hika or rae! ^^
