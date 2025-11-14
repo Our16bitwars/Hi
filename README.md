@@ -53,6 +53,24 @@ Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety
 Most of things i do  Its my trauma response, sorry if i bother you w/ that
 
 
+I may sometimes zone out // check my socials or busy. I'm sorry if i don't see you. Please whisp in any case. 
+
+If i hide behind someone completely, showing like almost nothing of my skin or have "dni/dniu___" it means either im not mentally okay to interact in that moment or im being comforted by someone.
+
+
+My closest friends are
+♡Rosalina
+♡Rae
+♡Hika
+♡Toya
+♡Mafu
+♡Izzy
+
+Im mostly with hika or rae! ^^
+
+
+they are my comfort ppl ^_^
+
 
 Usually goofing around on pjsk area mostly with friends or alone .
 
