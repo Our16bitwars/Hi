@@ -50,11 +50,11 @@ i like troops as yall can see
 Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety, social anxiety & panic disorder.
 
 
-Most of things i do  Its my trauma response, sorry if i bother u w/ that
+Most of things i do  Its my trauma response, sorry if i bother you w/ that
 
 
 
-Usually goofing around on pjsk area mostly with friends or alone  :P
+Usually goofing around on pjsk area mostly with friends or alone .
 
 /ᐠ > ˕ <マ I WAS AT A BREADLINE!!! (and wiki also!) 30.09
 
@@ -131,35 +131,3 @@ She is coming closer
 
 
 ![IMG_2362](https://github.com/user-attachments/assets/752238a7-e7a4-4d70-896a-9576cda2e122)
-
-
-
-
-# check out my comfort songs !!
-
-
-https://youtu.be/cgbNAcrW3m0?si=g53AzXosEAT9bEE5
-
-
-https://youtu.be/UBbMnphYv9Y?si=KP1mMAKeMEMbmwz-
-
-
-https://youtu.be/hmDK_uJu7kQ?si=HVLj65QhCuv7Beej
-
-
-https://youtu.be/l9q_KrrdEB8?si=GfxGVPRQYW-UIJur
-
-
-https://youtu.be/AHjxLoeYIoI?si=53uUddkOoA-vvHWn
-
-
-https://youtu.be/fkyb6r_Qwxg?si=US8J5q9iZWLMMeuL
-
-
-https://youtu.be/XhtbdssFesk?si=vZxfj3T1T54tITU6
-
-https://youtu.be/gYWVFH70vDQ?feature=shared
-
-https://youtu.be/lw7pcm1W5tw?si=dAhz4ysMTlD4ubsL
-
-｡ﾟ•┈୨♡୧┈• ｡ﾟ
