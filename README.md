@@ -61,9 +61,7 @@ If i hide behind someone completely, showing like almost nothing of my skin or h
 My closest friends are
 (Listed by how close i am to them!)
 
-♡Rosalina
-
-♡Rae
+♡Rosalina & rae♡ <- closest friends<33
 
 ♡Hika
 
@@ -156,3 +154,5 @@ She is coming closer
 
 
 ![IMG_2362](https://github.com/user-attachments/assets/752238a7-e7a4-4d70-896a-9576cda2e122)
+
+shoot into the steel 
