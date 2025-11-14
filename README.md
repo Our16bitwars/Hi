@@ -99,7 +99,7 @@ Homophobics
 
 Trump supporters
 
-Proshippers/darkshippers
+Proshippers/darkshippers <- Unless its coping mechanism or we are close friends
 
 Islamphobic
 
