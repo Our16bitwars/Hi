@@ -25,7 +25,7 @@ Intro! (im remaking this sometime idk)
 
 Howdy, call me kiyo, 16bit, kaito/kai,Adachi rei/adachi or Astraea (Adachi rei, astraea or kiyo prefered but idm if u call me any of those)
 
-She/they/he
+She/they/he/star/paw
 
 Birthday is 07/02!!
 
