@@ -58,23 +58,23 @@ I may sometimes zone out // check my socials or busy. I'm sorry if i don't see y
 If i hide behind someone completely, showing like almost nothing of my skin or have "dni/dniu___" it means either im not mentally okay to interact in that moment or im being comforted by someone.
 
 
-My closest friends are
+My closest friends are....
+
 (Listed by how close i am to them!)
 
-♡Rosalina & rae♡ <- closest friends<33
+♡ Rosalina & Rae ♡ <- closest friends and comfort people ily guys sm <33 /p
 
 ♡Hika
 
 ♡Toya
 
+♡ Rei 
+
 ♡Mafu
 
 ♡Izzy
 
-Im mostly with hika or rae! ^^
-
-
-they are my comfort ppl ^_^
+Im mostly with hika or rae .
 
 
 Usually goofing around on pjsk area mostly with friends or alone .
