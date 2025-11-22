@@ -42,7 +42,7 @@ Taken! 14.10
 I luv my gf <3
 
 
-27.09 - @liminalheaven ♡ (thank you for giving me a reason to live. I love you)
+27.09 - @liminalheaven ♡ (thank you for everything and being my best friend, for our silly RPS. i love you truly /p)
 
 
 i like troops as yall can see
@@ -62,13 +62,11 @@ My closest friends are....
 
 (Listed by how close i am to them!)
 
-♡ Rosalina & Rae ♡ <- closest friends and comfort people ily guys sm <33 /p
+♡ Rosalina & Rae ♡ <- closest friends. I trust you two completely with my heart. ♡
 
 ♡Hika
 
 ♡Toya
-
-♡ Rei 
 
 ♡Mafu
 
