@@ -46,10 +46,11 @@ I luv my gf <3
 27.09 - @liminalheaven ♡ (thank you for everything and being my best friend, for our silly RPS. i love you truly /p)
 
 
-i like troops as yall can see![IMG_2033](https://github.com/user-attachments/assets/280c6c65-7091-472a-8690-24b41593a9c0)
+i like troops as yall can see
+![IMG_2033](https://github.com/user-attachments/assets/280c6c65-7091-472a-8690-24b41593a9c0)
 
 
-Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety, social anxiety & panic disorder.
+Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety, social anxiety,panic disorder & depression.
 
 
 Most of things i do  Its my trauma response, sorry if i bother you w/ that
