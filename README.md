@@ -47,6 +47,7 @@ I luv my gf <3
 
 
 i like troops as yall can see
+
 ![IMG_2033](https://github.com/user-attachments/assets/280c6c65-7091-472a-8690-24b41593a9c0)
 
 
