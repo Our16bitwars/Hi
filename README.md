@@ -78,6 +78,23 @@ My closest friends are....
 
 Im mostly with hika or rae .
 
+♥Special friend mentions♡ ｡ﾟ•┈୨♡୧┈• ｡ﾟ
+
+-✧ Rosalina. She's like family to me, always being there for me and supporting me. She's truly someone special to me and i'm so glad we are bffs. I love you sis<3 /p
+
+-✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. Thank you so much for being my friend.
+
+-✧ Hika. He's feel like my twin, i love him and everything about him. Not much needed to say.
+
+-✧ Mafu & Izzy. They're both someone really special to me, they always make me laugh even when i'm sad. love you two.
+
+-✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.
+
+
+ I'm sorry if you weren't mentioned. I love my other friends too.
+
+
+
 
 Usually goofing around on pjsk area mostly with friends or alone .
 
