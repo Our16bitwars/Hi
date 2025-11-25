@@ -78,7 +78,7 @@ My closest friends are....
 
 Im mostly with hika or rae .
 
-♥Special friend mentions♡ ｡ﾟ•┈୨♡୧┈• ｡ﾟ💌
+♥Special friend mentions♡ 💌
 
 -✧ Rosalina. She's like family to me, always being there for me and supporting me. She's truly someone special to me and i'm so glad we are bffs. I love you sis<3 ꨄ
 
