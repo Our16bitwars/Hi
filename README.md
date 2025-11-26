@@ -80,9 +80,9 @@ Im mostly with hika or rae .
 
 ♥Special friend mentions♡ 💌
 
--✧ Rosalina. She's like family to me, always being there for me and supporting me. She's truly someone special to me and i'm so glad we are bffs. I love you sis<3 ꨄ
+-✧ Rosalina. She's like family to me, always being there for me and supporting me. She's truly someone special to me and i'm so glad we are bffs. Also she's one of the two people i feel like i can trust. I love you sis<3 ꨄ
 
--✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. Thank you so much for being my friend.❥
+-✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. He's one of the people who i feel like i can truly trust. Thank you so much for being my friend.❥
 
 -✧ Hika. He's feel like my twin, i love him and everything about him. Not much needed to say.♡
 
