@@ -147,6 +147,11 @@ Im pretty shy and the best i can do is go with you and crown/compliment ur skin!
 
 My skin style changes ALOT on PT since i usually test styles, use for somedays and maybe switch to old style or try new ones. Plz don't assume i copied. I got copied once and it sucks.
 
+Please don't send random friend requests to me if we haven't talked. I'll recuse it.
+
+
+𝑰 𝒍𝒐𝒗𝒆 [𝒉𝒆𝒓](https://github.com/liminalheaven) <3
+
 
 
 ![IMG_0837](https://github.com/user-attachments/assets/e204510d-fa4e-4bfe-bfa2-f75cf8a35b67) 
