@@ -95,6 +95,10 @@ Im mostly with hika or rae .
 
 -✧ Mafu & Izzy. They're both someone really special to me, they always make me laugh even when i'm sad. love you two.☆
 
+[𝑴𝒂𝒇𝒖'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 ^^](https://github.com/Witheredthorns)
+
+𝒊𝒛𝒛𝒚 𝒅𝒐𝒆𝒔𝒏'𝒕 𝒉𝒂𝒗𝒆 𝑮𝑯
+
 -✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.★
 
 
