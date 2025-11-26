@@ -101,6 +101,10 @@ Im mostly with hika or rae .
 
 -✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.★
 
+[𝑴𝒚 𝒐𝒏𝒍𝒊𝒏𝒆 𝒎𝒐𝒎'𝒔 𝒈𝒉 :3](https://github.com/mmadpokk)
+
+
+-✧ Hana. She's someone really special to me and i'm glad i'm friends with her.☆
 
  I'm sorry if you weren't mentioned. I love my other friends too.
 
