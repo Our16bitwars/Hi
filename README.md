@@ -106,6 +106,9 @@ Im mostly with hika or rae .
 
 -✧ Hana. She's someone really special to me and i'm glad i'm friends with her.☆
 
+
+[𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/souIlove)
+
  I'm sorry if you weren't mentioned. I love my other friends too.
 
 
