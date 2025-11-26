@@ -87,6 +87,8 @@ Im mostly with hika or rae .
 
 -✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. He's one of the people who i feel like i can truly trust. Thank you so much for being my friend.❥
 
+[𝑯𝒊𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/Rxmas1lly)
+
 -✧ Hika. He's feel like my twin, i love him and everything about him. Not much needed to say.♡
 
 -✧ Mafu & Izzy. They're both someone really special to me, they always make me laugh even when i'm sad. love you two.☆
