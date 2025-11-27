@@ -86,7 +86,8 @@ Im mostly with hika or rae .
 [𝑯𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 <3](https://github.com/liminalheaven)
 
 
--✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. He's one of the people who i feel like i can truly trust. Thank you so much for being my friend.❥ ![GIF image](https://github.com/user-attachments/assets/19a42bc9-373c-458a-9a9e-a65a1ef5ad88)
+-✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. He's one of the people who i feel like i can truly trust. Thank you so much for being my friend.❥ ![IMG_2110](https://github.com/user-attachments/assets/89033bee-c527-4155-9503-af2f22aa6b52)
+
 
 
 [𝑯𝒊𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/Rxmas1lly)
