@@ -80,31 +80,37 @@ Im mostly with hika or rae .
 
 ♥Special friend mentions♡ 💌
 
--✧ Rosalina. She's like family to me, always being there for me and supporting me. She's truly someone special to me and i'm so glad we are bffs. Also she's one of the two people i feel like i can trust. I love you sis<3 ꨄ
+-✧ Rosalina. She's like family to me, always being there for me and supporting me. She's truly someone special to me and i'm so glad we are bffs. Also she's one of the two people i feel like i can trust. I love you sis<3 ![GIF image](https://github.com/user-attachments/assets/226e8d2e-a062-41c8-ad80-b62e5efa4406)
+
 
 [𝑯𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 <3](https://github.com/liminalheaven)
 
 
--✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. He's one of the people who i feel like i can truly trust. Thank you so much for being my friend.❥
+-✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. He's one of the people who i feel like i can truly trust. Thank you so much for being my friend.❥ ![GIF image](https://github.com/user-attachments/assets/19a42bc9-373c-458a-9a9e-a65a1ef5ad88)
+
 
 [𝑯𝒊𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/Rxmas1lly)
 
--✧ Hika. He's feel like my twin, i love him and everything about him. Not much needed to say.♡
+-✧ Hika. He's feel like my twin, i love him and everything about him. Not much needed to say. ![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/2c11c63e-8bc0-46fb-9c53-7879a8e5a15f)
+
 
 [𝑴𝒚 𝒕𝒘𝒊𝒏'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/prisoner004)
 
 -✧ Mafu & Izzy. They're both someone really special to me, they always make me laugh even when i'm sad. love you two.☆
 
-[𝑴𝒂𝒇𝒖'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 ^^](https://github.com/Witheredthorns)
+[𝑴𝒂𝒇𝒖'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 ^^](https://github.com/Witheredthorns)![GIF image](https://github.com/user-attachments/assets/2b371da8-2421-466f-b431-dd7b6ec73046)
+
 
 𝒊𝒛𝒛𝒚 𝒅𝒐𝒆𝒔𝒏'𝒕 𝒉𝒂𝒗𝒆 𝑮𝑯
 
--✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.★
+-✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.★ ![GIF image](https://github.com/user-attachments/assets/706c86d6-884a-4a8f-a02a-0f956c99eb50)
+
 
 [𝑴𝒚 𝒐𝒏𝒍𝒊𝒏𝒆 𝒎𝒐𝒎'𝒔 𝒈𝒉 :3](https://github.com/mmadpokk)
 
 
--✧ Hana. She's someone really special to me and i'm glad i'm friends with her.☆
+-✧ Hana. She's someone really special to me and i'm glad i'm friends with her.☆ ![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/61d94017-4e16-4906-964c-ad9064eb3396)
+
 
 
 [𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/souIlove)
