@@ -205,3 +205,21 @@ She is coming closer
 ![IMG_2362](https://github.com/user-attachments/assets/752238a7-e7a4-4d70-896a-9576cda2e122)
 
 shoot into the steel 
+
+
+# 
+
+![IMG_2037](https://github.com/user-attachments/assets/8932296f-faa4-42d8-be48-abfe0aae18d3)
+![IMG_2038](https://github.com/user-attachments/assets/c44156f3-6501-401f-a49b-475a9ba00fb6)
+![IMG_2031](https://github.com/user-attachments/assets/f9d71d3d-36ff-45e9-b0c6-e22062b3deda)
+![IMG_2032](https://github.com/user-attachments/assets/f5ef771d-3017-4541-b8dd-d123d53284c0)
+![IMG_2033](https://github.com/user-attachments/assets/5c2f23c6-b120-49cf-9462-dc94730c96bf)
+![IMG_2054](https://github.com/user-attachments/assets/622d3c72-7649-4099-b072-e72209ed93cf)
+![IMG_2055](https://github.com/user-attachments/assets/eedad17d-0288-4a06-993a-9ca67f6213bf)
+<img width="88" height="31" alt="IMG_2056" src="https://github.com/user-attachments/assets/eae27989-ec87-4358-b84f-1e9b77eaae44" />
+![IMG_2052](https://github.com/user-attachments/assets/ea2c114b-7f76-4f6d-a3a3-24fa8565032a)
+![IMG_2053](https://github.com/user-attachments/assets/2db1e902-17bd-459b-a62f-ea898f275d19)
+![IMG_2104](https://github.com/user-attachments/assets/59caee48-ad7b-4172-9b97-6f04251ece5b)
+<img width="99" height="56" alt="IMG_2105" src="https://github.com/user-attachments/assets/56626251-ff6f-43c1-a27e-829ba79807aa" />
+![IMG_2106](https://github.com/user-attachments/assets/41c2e09c-9b56-4b1d-bc14-622e6b909ae5)
+
