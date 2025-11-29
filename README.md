@@ -51,7 +51,7 @@ i like troops as yall can see
 ![IMG_2033](https://github.com/user-attachments/assets/280c6c65-7091-472a-8690-24b41593a9c0)
 
 
-Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety, social anxiety,panic disorder & depression.
+Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety, social anxiety,panic disorder,depression & PTSD.
 
 
 Most of things i do  Its my trauma response, sorry if i bother you w/ that
@@ -115,6 +115,15 @@ Im mostly with hika or rae .
 
 
 [𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/souIlove)
+
+
+-✧ Nat. I don't have to say alot about you. You're extremely amazing and fun to have around. I love your jokes about kaito n stuff. ❆ ![IMG_2108](https://github.com/user-attachments/assets/bbc63b41-16a5-439c-aa66-2a0d78ca81ba)
+
+
+
+[𝑻𝒉𝒆𝒊𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 ^-^](https://github.com/kkaitoshion)
+
+
 
  I'm sorry if you weren't mentioned. I love my other friends too.
 
