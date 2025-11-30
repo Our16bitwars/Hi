@@ -97,12 +97,9 @@ Im mostly with hika or rae .
 
 [𝑴𝒚 𝒕𝒘𝒊𝒏'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/prisoner004)
 
--✧ Mafu & Izzy. They're both someone really special to me, they always make me laugh even when i'm sad. love you two.☆
+-✧ Mafu. They're both someone really special to me, they always make me laugh even when i'm sad. love you
 
-[𝑴𝒂𝒇𝒖'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 ^^](https://github.com/Witheredthorns)![GIF image](https://github.com/user-attachments/assets/2b371da8-2421-466f-b431-dd7b6ec73046)
-
-
-𝒊𝒛𝒛𝒚 𝒅𝒐𝒆𝒔𝒏'𝒕 𝒉𝒂𝒗𝒆 𝑮𝑯
+[𝑴𝒂𝒇𝒖'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃.](https://github.com/Witheredthorns)
 
 -✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.★ ![GIF image](https://github.com/user-attachments/assets/706c86d6-884a-4a8f-a02a-0f956c99eb50)
 
