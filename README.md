@@ -51,7 +51,11 @@ i like troops as yall can see
 ![IMG_2033](https://github.com/user-attachments/assets/280c6c65-7091-472a-8690-24b41593a9c0)
 
 
-Diagnosed with AUDHD, trauma, insomnia, trust issues, attachment issues, anxiety, social anxiety,panic disorder,depression & PTSD.
+<img width="20" height="20" alt="adhd-flag" src="https://github.com/user-attachments/assets/3d991e64-acf9-47ef-9a6a-49450cc26ee2" />
+<img width="20" height="20" alt="anxiety-depression" src="https://github.com/user-attachments/assets/5404d47b-3e93-4810-8f28-c4990e6dc924" />
+<img width="20" height="20" alt="ptsd" src="https://github.com/user-attachments/assets/dd543bef-c3d9-4c4a-8779-621ed3073320" />
+<img width="20" height="20" alt="autismflag" src="https://github.com/user-attachments/assets/605b047e-b9d6-4b30-82e2-41ddad0abfe9" /> + other stuff.
+
 
 
 Most of things i do  Its my trauma response, sorry if i bother you w/ that
