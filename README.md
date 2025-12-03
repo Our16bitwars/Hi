@@ -1,4 +1,8 @@
 
+𝑰 𝒍𝒐𝒗𝒆 [𝒉𝒆𝒓](https://github.com/liminalheaven) 𝒂𝒍𝒍 𝒘𝒂𝒚 𝒕𝒐 𝒕𝒉𝒆 𝒔𝒕𝒂𝒓𝒔 𝒂𝒏𝒅 𝒃𝒂𝒄𝒌 𝒊𝒍𝒚𝒔𝒎 <33
+
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 Stuff i listen to!!!
@@ -181,7 +185,7 @@ My skin style changes ALOT on PT since i usually test styles, use for somedays a
 Please don't send random friend requests to me if we haven't talked. I'll recuse it.
 
 
-𝑰 𝒍𝒐𝒗𝒆 [𝒉𝒆𝒓](https://github.com/liminalheaven) <3
+
 
 
 
