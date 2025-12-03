@@ -101,10 +101,6 @@ Im mostly with hika or rae .
 
 [𝑴𝒚 𝒕𝒘𝒊𝒏'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/prisoner004)
 
--✧ Mafu. They're both someone really special to me, they always make me laugh even when i'm sad. love you
-
-[𝑴𝒂𝒇𝒖'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃.](https://github.com/Witheredthorns)
-
 -✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.★ ![GIF image](https://github.com/user-attachments/assets/706c86d6-884a-4a8f-a02a-0f956c99eb50)
 
 
