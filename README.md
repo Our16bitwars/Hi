@@ -1,7 +1,8 @@
+
+remake wip!
+
+
 𝑰 𝒍𝒐𝒗𝒆 [𝒉𝒆𝒓](https://github.com/liminalheaven) 𝒂𝒍𝒍 𝒘𝒂𝒚 𝒕𝒐 𝒕𝒉𝒆 𝒔𝒕𝒂𝒓𝒔 𝒂𝒏𝒅 𝒃𝒂𝒄𝒌 𝒊𝒍𝒚𝒔𝒎 <33
-
-
-Huge remake soon maybe??
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
@@ -16,80 +17,42 @@ Stuff i listen to!!!
 
 ★ ☆ ★
 
-(Fun fact abt the pic above, i made a skin based on the soldier on the left ^^ i usually use that skin soo yep :D)
+♯ 𝑰𝒏𝒕𝒓𝒐𝒅𝒖𝒄𝒕𝒊𝒐𝒏 !!
 
+｡ﾟ•┈୨♡୧┈• ｡ﾟ
 
-"Shoot into the steel, the alarm from a bigman said"
+☆𝑯𝒆𝒍𝒍𝒐! 𝒄𝒂𝒍𝒍 𝒎𝒆 𝑲𝒊𝒚𝒐 𝒐𝒓 𝑨𝒅𝒂𝒄𝒉𝒊. 16𝒃𝒊𝒕, 𝑲𝒂𝒊𝒕𝒐 𝒐𝒓 𝑨𝒔𝒕𝒓𝒂𝒆𝒂 𝒊𝒇 𝒘𝒆'𝒓𝒆 𝒄𝒍𝒐𝒔𝒆.
 
-"Relative and absolute saturation vapor pressures for too convenient adults' convenience, still the future ignored the past, one after another"
+☆𝑯𝒆/𝒕𝒉𝒆𝒚/𝒔𝒕𝒂𝒓/𝒑𝒖𝒑/𝒄𝒂𝒕/𝒑𝒂𝒘
 
-★Troops are coming!★
+☆ 𝑴𝒚 𝒃𝒊𝒓𝒕𝒉𝒅𝒂𝒚 𝒊𝒔 07𝒕𝒉 𝒇𝒆𝒃𝒓𝒖𝒂𝒓𝒚.
 
-# 
+☆𝑻𝒓𝒂𝒏𝒔𝒎𝒂𝒔𝒄, 𝒂𝒈𝒆𝒏𝒅𝒆𝒓, 𝒅𝒆𝒎𝒊-𝒂𝒓𝒐𝒎𝒂𝒕𝒊𝒄, 𝑿𝒆𝒏𝒐𝒈𝒆𝒏𝒅𝒆𝒓
 
-Intro! (im remaking this sometime idk)
-
-Howdy, call me kiyo, 16bit, kaito/kai,Adachi rei/adachi or Astraea (Adachi rei, astraea or kiyo prefered but idm if u call me any of those)
-
-He/they/star/paw/pup/cat
-
-Birthday is 07/02!!
-
-i can be harsh and cold at first but i'm usually nice <- except to people i find annoying/annoy me. I'll be way more cold/rude. 
-
-I'm transmasc btw wow
-
-![IMG_0770](https://github.com/user-attachments/assets/d1b3ad27-e095-4058-a540-62459dcc8111)
-
-
-I like sasakure uk
-
-Taken! 14.10 
-I luv my gf <3
-
-
-27.09 - @liminalheaven ♡ (thank you for everything and being my best friend, for our silly RPS. i love you truly /p)
-
-
-i like troops as yall can see
-
-![IMG_2033](https://github.com/user-attachments/assets/280c6c65-7091-472a-8690-24b41593a9c0)
-
-
-<img width="20" height="20" alt="adhd-flag" src="https://github.com/user-attachments/assets/3d991e64-acf9-47ef-9a6a-49450cc26ee2" />
-<img width="20" height="20" alt="anxiety-depression" src="https://github.com/user-attachments/assets/5404d47b-3e93-4810-8f28-c4990e6dc924" />
-<img width="20" height="20" alt="ptsd" src="https://github.com/user-attachments/assets/dd543bef-c3d9-4c4a-8779-621ed3073320" />
-<img width="20" height="20" alt="autismflag" src="https://github.com/user-attachments/assets/605b047e-b9d6-4b30-82e2-41ddad0abfe9" /> + other stuff.
+☆ 𝑰 𝒍𝒐𝒗𝒆 𝒎𝒚 𝒈𝒊𝒓𝒍𝒇𝒓𝒊𝒆𝒏𝒅 ! - 14𝒕𝒉 𝒐𝒄𝒕𝒐𝒃𝒆𝒓
 
 
 
-Most of things i do  Its my trauma response, sorry if i bother you w/ that
+
+ ｡ﾟ•┈୨♡୧┈• ｡ﾟ
 
 
-I may sometimes zone out // check my socials or busy. I'm sorry if i don't see you. Please whisp in any case. 
+♡ 𝑪𝒍𝒐𝒔𝒆𝒔𝒕 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 
 
-If i hide behind someone completely, showing like almost nothing of my skin or have "dni/dniu___" it means either im not mentally okay to interact in that moment, im being comforted by someone or just tired/drained.
+< 𝒓𝒐𝒔𝒂𝒍𝒊𝒏𝒂 & 𝒓𝒂𝒆 3 <- 𝒎𝒚 𝒃𝒇𝒇𝒔 ♡
+
+♡𝑯𝒂𝒓𝒖
+
+♡𝑻𝒐𝒚𝒂/𝒎𝒂𝒅𝒑𝒐𝒄𝒌
+
+♡𝑴𝒂𝒇𝒖
+
+♡𝑰𝒛𝒛𝒚
 
 
-My closest friends are....
+𝑳𝒐𝒗𝒆𝒎𝒂𝒊𝒍𝒔 // 𝑯𝒐𝒏𝒐𝒓𝒂𝒃𝒍𝒆 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔♡ 💌
 
-(Listed by how close i am to them!)
-
-♡ Rosalina & Rae ♡ <- closest friends. I trust you two completely with my heart. ♡
-
-♡Hika
-
-♡Toya
-
-♡Mafu
-
-♡Izzy
-
-Im mostly with hika or rae .
-
-♥Special friend mentions♡ 💌
-
--✧ Rosalina. She's like family to me, always being there for me and supporting me. She's truly someone special to me and i'm so glad we are bffs. Also she's one of the two people i feel like i can trust. I love you sis<3 ![GIF image](https://github.com/user-attachments/assets/226e8d2e-a062-41c8-ad80-b62e5efa4406)
+-✧ 𝑹𝒐𝒔𝒂𝒍𝒊𝒏𝒂. 𝑺𝒉𝒆'𝒔 𝒍𝒊𝒌𝒆 𝒇𝒂𝒎𝒊𝒍𝒚 𝒕𝒐 𝒎𝒆. 𝑨𝒍𝒘𝒂𝒚𝒔 𝒃𝒆𝒊𝒏𝒈 𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆. 𝑺𝒖𝒑𝒑𝒐𝒓𝒕𝒊𝒏𝒈 𝒎𝒆, 𝒃𝒆𝒊𝒏𝒈 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆 𝒂𝒏𝒅 𝒂𝒍𝒘𝒂𝒚𝒔 𝒉𝒆𝒍𝒑𝒊𝒏𝒈 𝒎𝒆, 𝒆𝒔𝒑𝒆𝒄𝒊𝒂𝒍𝒍𝒚 𝒅𝒖𝒓𝒊𝒏𝒈 𝒅𝒂𝒓𝒌 𝒕𝒊𝒎𝒆𝒔. 𝑰 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖 𝒔𝒐 𝒎𝒖𝒄𝒉 𝒔𝒊𝒔<3 ![GIF image](https://github.com/user-attachments/assets/226e8d2e-a062-41c8-ad80-b62e5efa4406)
 
 
 [𝑯𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 <3](https://github.com/liminalheaven)
