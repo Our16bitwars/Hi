@@ -1,6 +1,7 @@
-
 𝑰 𝒍𝒐𝒗𝒆 [𝒉𝒆𝒓](https://github.com/liminalheaven) 𝒂𝒍𝒍 𝒘𝒂𝒚 𝒕𝒐 𝒕𝒉𝒆 𝒔𝒕𝒂𝒓𝒔 𝒂𝒏𝒅 𝒃𝒂𝒄𝒌 𝒊𝒍𝒚𝒔𝒎 <33
 
+
+Huge remake soon maybe??
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
@@ -127,7 +128,7 @@ Im mostly with hika or rae .
 
 -✧ Mafu/Yuki. she's one of my dearest friends too and she comforts me in er own way even when she's struggling. She makes me laugh and smile even when im sad. Ily ^^
 
-[𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃]
+[𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/Snowedribbqns)
 
 
 
