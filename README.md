@@ -100,7 +100,7 @@ Im mostly with hika or rae .
 
 [𝑯𝒊𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/Rxmas1lly)
 
--✧ Hika. He's feel like my twin, i love him and everything about him. Not much needed to say. ![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/2c11c63e-8bc0-46fb-9c53-7879a8e5a15f)
+-✧ Haru. He's feel like my twin, i love him and everything about him. Not much needed to say. ![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/2c11c63e-8bc0-46fb-9c53-7879a8e5a15f)
 
 
 [𝑴𝒚 𝒕𝒘𝒊𝒏'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/prisoner004)
@@ -123,6 +123,12 @@ Im mostly with hika or rae .
 
 
 [𝑻𝒉𝒆𝒊𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 ^-^](https://github.com/kkaitoshion)
+
+
+-✧ Mafu/Yuki. she's one of my dearest friends too and she comforts me in er own way even when she's struggling. She makes me laugh and smile even when im sad. Ily ^^
+
+[𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃]
+
 
 
 
