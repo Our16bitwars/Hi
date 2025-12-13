@@ -1,5 +1,6 @@
+<img width="689" height="559" alt="Untitled263_20251213192708" src="https://github.com/user-attachments/assets/e0c5f5a5-4a1a-4fa5-a44f-10a64be169d6" />
 
-remake wip!
+
 
 
 𝑰 𝒍𝒐𝒗𝒆 [𝒉𝒆𝒓](https://github.com/liminalheaven) 𝒂𝒍𝒍 𝒘𝒂𝒚 𝒕𝒐 𝒕𝒉𝒆 𝒔𝒕𝒂𝒓𝒔 𝒂𝒏𝒅 𝒃𝒂𝒄𝒌 𝒊𝒍𝒚𝒔𝒎 <33
@@ -7,7 +8,7 @@ remake wip!
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-Stuff i listen to!!!
+𝑺𝒕𝒖𝒇𝒇 𝒊 𝒍𝒊𝒔𝒕𝒆𝒏 𝒕𝒐𝒐 !!
 
 
 
@@ -32,6 +33,7 @@ Stuff i listen to!!!
 ☆ 𝑰 𝒍𝒐𝒗𝒆 𝒎𝒚 𝒈𝒊𝒓𝒍𝒇𝒓𝒊𝒆𝒏𝒅 ! - 14𝒕𝒉 𝒐𝒄𝒕𝒐𝒃𝒆𝒓
 
 
+★
 
 
  ｡ﾟ•┈୨♡୧┈• ｡ﾟ
@@ -52,24 +54,24 @@ Stuff i listen to!!!
 
 𝑳𝒐𝒗𝒆𝒎𝒂𝒊𝒍𝒔 // 𝑯𝒐𝒏𝒐𝒓𝒂𝒃𝒍𝒆 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔♡ 💌
 
--✧ 𝑹𝒐𝒔𝒂𝒍𝒊𝒏𝒂. 𝑺𝒉𝒆'𝒔 𝒍𝒊𝒌𝒆 𝒇𝒂𝒎𝒊𝒍𝒚 𝒕𝒐 𝒎𝒆. 𝑨𝒍𝒘𝒂𝒚𝒔 𝒃𝒆𝒊𝒏𝒈 𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆. 𝑺𝒖𝒑𝒑𝒐𝒓𝒕𝒊𝒏𝒈 𝒎𝒆, 𝒃𝒆𝒊𝒏𝒈 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆 𝒂𝒏𝒅 𝒂𝒍𝒘𝒂𝒚𝒔 𝒉𝒆𝒍𝒑𝒊𝒏𝒈 𝒎𝒆, 𝒆𝒔𝒑𝒆𝒄𝒊𝒂𝒍𝒍𝒚 𝒅𝒖𝒓𝒊𝒏𝒈 𝒅𝒂𝒓𝒌 𝒕𝒊𝒎𝒆𝒔. 𝑰 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖 𝒔𝒐 𝒎𝒖𝒄𝒉 𝒔𝒊𝒔<3 ![GIF image](https://github.com/user-attachments/assets/226e8d2e-a062-41c8-ad80-b62e5efa4406)
+-✧ 𝑹𝒐𝒔𝒂𝒍𝒊𝒏𝒂 ♡ .  𝑺𝒉𝒆'𝒔 𝒕𝒉𝒆 𝒃𝒆𝒔𝒕𝒆𝒔𝒕 𝒕𝒉𝒊𝒏𝒈 𝒕𝒉𝒂𝒕 𝒆𝒗𝒆𝒓 𝒉𝒂𝒑𝒑𝒆𝒏𝒅 𝒕𝒐 𝒎𝒆 𝒂𝒏𝒅 𝑺𝒉𝒆'𝒔 𝒍𝒊𝒌𝒆 𝒇𝒂𝒎𝒊𝒍𝒚 𝒕𝒐 𝒎𝒆. 𝑨𝒍𝒘𝒂𝒚𝒔 𝒃𝒆𝒊𝒏𝒈 𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆. 𝑺𝒖𝒑𝒑𝒐𝒓𝒕𝒊𝒏𝒈 𝒎𝒆, 𝒃𝒆𝒊𝒏𝒈 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆 𝒂𝒏𝒅 𝒂𝒍𝒘𝒂𝒚𝒔 𝒉𝒆𝒍𝒑𝒊𝒏𝒈 𝒎𝒆, 𝒆𝒔𝒑𝒆𝒄𝒊𝒂𝒍𝒍𝒚 𝒅𝒖𝒓𝒊𝒏𝒈 𝒅𝒂𝒓𝒌 𝒕𝒊𝒎𝒆𝒔. 𝑰 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖 𝒔𝒐 𝒎𝒖𝒄𝒉 𝒔𝒊𝒔<3 ![GIF image](https://github.com/user-attachments/assets/226e8d2e-a062-41c8-ad80-b62e5efa4406)
 
 
 [𝑯𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 <3](https://github.com/liminalheaven)
 
 
--✧ Rae. He's like my other family too, even after a certain incident we had(11.10) we are healing together and rebuilding our friendship. He's always here for me even when he's struggling too. He's one of the people who i feel like i can truly trust. Thank you so much for being my friend.❥ ![IMG_2110](https://github.com/user-attachments/assets/89033bee-c527-4155-9503-af2f22aa6b52)
+-✧ 𝑹𝒂𝒆 ♡ . 𝑯𝒆'𝒔 𝒍𝒊𝒌𝒆 𝒎𝒚 𝒐𝒕𝒉𝒆𝒓 𝒇𝒂𝒎𝒊𝒍𝒚. 𝑯𝒆'𝒔 𝒂𝒍𝒔𝒐 𝒐𝒏𝒆 𝒐𝒇 𝒕𝒉𝒆 𝒃𝒆𝒔𝒕 𝒕𝒉𝒊𝒏𝒈𝒔 𝒕𝒉𝒂𝒕 𝒉𝒂𝒑𝒑𝒆𝒏𝒅 𝒘𝒊𝒕𝒉 𝒎𝒆. 𝑬𝒗𝒆𝒏 𝒂𝒇𝒕𝒆𝒓 𝒂𝒏 𝒄𝒆𝒓𝒕𝒂𝒊𝒏 𝒊𝒏𝒄𝒊𝒅𝒆𝒏𝒕 𝒘𝒆 𝒉𝒂𝒅(11.10) 𝒘𝒆 𝒂𝒓𝒆 𝒓𝒆𝒃𝒖𝒊𝒍𝒅𝒊𝒏𝒈 𝒐𝒖𝒓 𝒇𝒓𝒊𝒆𝒏𝒅𝒔𝒉𝒊𝒑 𝒂𝒏𝒅 𝒉𝒆'𝒔 𝒂𝒍𝒘𝒂𝒚𝒔 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆 𝒆𝒗𝒆𝒏 𝒘𝒉𝒆𝒏 𝒉𝒆'𝒔 𝒔𝒕𝒓𝒖𝒈𝒈𝒍𝒊𝒏𝒈. 𝑰 𝒍𝒐𝒗𝒆 𝒉𝒊𝒎 𝒔𝒐 𝒎𝒖𝒄𝒉. 𝑻𝒉𝒂𝒏𝒌 𝒚𝒐𝒖 𝒇𝒐𝒓 𝒃𝒆𝒊𝒏𝒈 𝒎𝒚 𝒃𝒇𝒇.❥ ![IMG_2110](https://github.com/user-attachments/assets/89033bee-c527-4155-9503-af2f22aa6b52)
 
 
 
 [𝑯𝒊𝒔 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/Rxmas1lly)
 
--✧ Haru. He's feel like my twin, i love him and everything about him. Not much needed to say. ![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/2c11c63e-8bc0-46fb-9c53-7879a8e5a15f)
+-✧ 𝒉𝒂𝒓𝒖. 𝑯𝒆'𝒔 𝒂𝒏 𝒂𝒎𝒂𝒛𝒊𝒏𝒈 𝒑𝒆𝒓𝒔𝒐𝒏 𝒕𝒐 𝒃𝒆 𝒂𝒓𝒐𝒖𝒏𝒅 𝒂𝒏𝒅 𝒉𝒆'𝒔 𝒎𝒚 𝒕𝒘𝒊𝒏. 𝒊𝒍𝒚𝒔𝒎 ![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/2c11c63e-8bc0-46fb-9c53-7879a8e5a15f)
 
 
 [𝑴𝒚 𝒕𝒘𝒊𝒏'𝒔 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/prisoner004)
 
--✧ Toya/Madpock. They feel like an real mom to me. I'm genualy so glad ive meet xem.★ ![GIF image](https://github.com/user-attachments/assets/706c86d6-884a-4a8f-a02a-0f956c99eb50)
+-✧ 𝑻𝒐𝒚𝒂/𝑴𝒂𝒅𝒑𝒐𝒄𝒌. 𝑻𝒉𝒆𝒚'𝒓𝒆 𝒍𝒊𝒌𝒆 𝒂 𝒎𝒐𝒕𝒉𝒆𝒓 𝒇𝒊𝒈𝒖𝒓𝒆 𝒕𝒐 𝒎𝒆. 𝑰'𝒎 𝒔𝒐 𝒈𝒍𝒂𝒅 𝒊'𝒗𝒆 𝒎𝒆𝒕 𝒙𝒆𝒎★ ![GIF image](https://github.com/user-attachments/assets/706c86d6-884a-4a8f-a02a-0f956c99eb50)
 
 
 [𝑴𝒚 𝒐𝒏𝒍𝒊𝒏𝒆 𝒎𝒐𝒎'𝒔 𝒈𝒉 :3](https://github.com/mmadpokk)
@@ -94,68 +96,67 @@ Stuff i listen to!!!
 [𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/Snowedribbqns)
 
 
+𝑻𝒉𝒊𝒔 𝒇𝒐𝒏𝒕 = 𝒔𝒑𝒆𝒄𝒊𝒂𝒍 𝒑𝒆𝒐𝒑𝒍𝒆
 
 
  I'm sorry if you weren't mentioned. I love my other friends too.
 
 
-
-
-Usually goofing around on pjsk area mostly with friends or alone .
-
-/ᐠ > ˕ <マ I WAS AT A BREADLINE!!! (and wiki also!) 30.09
-
 # 
-DNI
+🍥˖⸂ ‎⟡ ˖ 𓈒꙳🐰𓂃𓈒𓏸
+
+𝑫𝑵𝑰 𝒍𝒊𝒔𝒕. 
 
 
-Pedos
+𝑷𝒆𝒅𝒐𝒔 // 𝒁𝒐𝒐
 
-zoos
 
-Loli/shota
+𝑳𝒐𝒍𝒊 // 𝑺𝒉𝒐𝒕𝒂
 
-Transphobics.
+𝑻𝒓𝒂𝒏𝒔𝒑𝒉𝒐𝒃𝒊𝒄𝒔
 
-Homophobics
+𝑯𝒐𝒎𝒐𝒑𝒉𝒐𝒃𝒊𝒄𝒔
 
-Trump supporters
+𝑻𝒓𝒖𝒎𝒑 𝒔𝒖𝒑𝒑𝒐𝒓𝒕𝒆𝒓𝒔
 
-Proshippers/darkshippers <- Unless its coping mechanism or we are close friends
+𝑰𝒔𝒍𝒂𝒎𝒑𝒉𝒐𝒃𝒊𝒄
 
-Islamphobic
+𝑼𝒏𝒅𝒆𝒓 11
 
 
 # 
-BYI:
+
+‧₊˚✩彡 𝑩𝑭𝒀𝑰
 
 
-If i find you annoying/ start annoying me, i WILL be rude. Like just go away from me. if i said to leave me alone. Just leave me the fuck alone.
+-𝒊 𝑾𝑰𝑳𝑳 𝒉𝒊𝒅𝒆 𝒂𝒏𝒅 𝒃𝒍𝒐𝒄𝒌 𝒚𝒐𝒖 𝒊𝒇 𝒚𝒐𝒖 𝒎𝒂𝒌𝒆 𝒎𝒆 𝒑𝒊𝒔𝒔𝒆𝒅 𝒐𝒇𝒇/ 𝒖𝒎𝒄𝒐𝒎𝒇𝒐𝒓𝒕𝒂𝒃𝒍𝒆
+
+-𝒊 𝒘𝒐𝒏'𝒕 𝒕𝒐𝒍𝒆𝒓𝒂𝒕𝒆 𝒂𝒏𝒚 𝒉𝒂𝒕𝒆 𝒕𝒐 𝒎𝒆 𝒐𝒓 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔.
+
+-𝒊 𝑾𝑶𝑵'𝑻 𝒋𝒐𝒊𝒏 𝒑𝒂𝒓𝒕𝒊𝒆𝒔. 𝑰'𝒎 𝒂𝒍𝒓𝒆𝒅𝒚 𝒊𝒏 𝒐𝒏𝒆 𝒘𝒊𝒕𝒉 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔.
+
+-𝑰𝒇 𝒊 𝒔𝒕𝒐𝒑 𝒕𝒂𝒍𝒌𝒊𝒏𝒈, 𝒊𝒕'𝒔 𝒏𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒂𝒖𝒍𝒕. 𝑴𝒚 𝒔𝒐𝒄𝒊𝒂𝒍 𝒃𝒂𝒕𝒕𝒆𝒓𝒚 𝒊𝒔 𝒋𝒖𝒔𝒕 𝒍𝒐𝒘. 𝑺𝒐 𝒃𝒆 𝒑𝒂𝒕𝒊𝒆𝒏𝒕.
 
 
-I'm fine with you c+h me and stuff but if i'm with my friends, ask them first if you wanna join a cuddle pile. If they say yes, i won't mind .
-
-I WILL hide and block you if i feel umcomfortable.
-
-i won't tolerate any hate towards me or my friends
-
-I WON'T join parties. I'm on a party alredy with my friends .
-
-If i stop talking, im not mad at you. Its just my social battery at zero, takes a bit to recharge so be patient..
+-𝑰 𝒎𝒂𝒚 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒔𝒍𝒆𝒆𝒑 𝒘𝒊𝒕𝒉 𝑷𝑻 𝒐𝒏𝒍𝒊𝒏𝒆 (𝒊𝒕'𝒔 𝒂𝒕 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒖𝒔𝒖𝒂𝒍𝒍𝒚) 𝑩𝒖𝒕 𝒇𝒆𝒆𝒍 𝒇𝒓𝒆𝒆 𝒕𝒐 𝒄*𝒉. 𝒊 𝒋𝒖𝒔𝒕 𝒘𝒐𝒏'𝒕 𝒂𝒏𝒔𝒘𝒆𝒓
 
 
-I may sometimes sleep with PT online . Its usually at my name but feel free to c+h! i js won't answer you ^^
-
-
-Im pretty shy and the best i can do is go with you and crown/compliment ur skin!! but feel free to bmf :3
-
-
-My skin style changes ALOT on PT since i usually test styles, use for somedays and maybe switch to old style or try new ones. Plz don't assume i copied. I got copied once and it sucks.
-
-Please don't send random friend requests to me if we haven't talked. I'll recuse it.
+-𝒊'𝒎 𝒔𝒉𝒚 𝒃𝒖𝒕 𝒇𝒆𝒆𝒍 𝒇𝒓𝒆𝒆 𝒕𝒐 𝒃𝒎𝒇!
 
 
 
+-𝑫𝒐𝒏'𝒕 𝒔𝒆𝒏𝒅 𝒓𝒂𝒏𝒅𝒐𝒎 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒓𝒆𝒒𝒖𝒆𝒔𝒕𝒔 𝒊𝒇 𝒘𝒆 𝒉𝒂𝒗𝒆𝒏'𝒕 𝒔𝒑𝒐𝒌𝒆. 𝒊'𝒍𝒍 𝒊𝒈𝒏𝒐𝒓𝒆 𝒊𝒕.
+
+
+-𝑰𝒇 𝒚𝒐𝒖 𝒓𝒂𝒈𝒆𝒃𝒂𝒊𝒕/𝑺𝒂𝒚 𝒘𝒆𝒊𝒓𝒅 𝒕𝒉𝒊𝒏𝒈𝒔 𝒕𝒐 𝒎𝒆 𝒆𝒗𝒆𝒏 𝒂𝒇𝒕𝒆𝒓 𝒊 𝒔𝒂𝒊𝒅 𝒕𝒐 𝒔𝒕𝒐𝒑, 𝑰'𝒍𝒍 𝒉𝒂𝒓𝒂𝒔𝒔 𝒚𝒐𝒖.
+
+-𝑰 𝒉𝒂𝒗𝒆 𝑨𝑼𝑫𝑯𝑫 + 𝒑𝒕𝒔𝒅(𝑨𝒍𝒐𝒏𝒈 𝒂𝒏𝒐𝒕𝒉𝒆𝒓 𝒔𝒕𝒖𝒇𝒇). 𝑷𝒍𝒆𝒂𝒔𝒆 𝒅𝒐𝒏'𝒕 𝒕𝒓𝒊𝒈𝒈𝒆𝒓 𝒎𝒚 𝒕𝒓𝒂𝒖𝒎𝒂. 𝒎𝒐𝒔𝒕 𝒕𝒉𝒊𝒏𝒈𝒔 𝒊 𝒅𝒐 𝒊𝒕'𝒔 𝒕𝒓𝒂𝒖𝒎𝒂 𝒓𝒆𝒔𝒑𝒐𝒏𝒔𝒆. 𝑺𝒐𝒓𝒓𝒚 𝒊𝒇 𝒊𝒕 𝒃𝒐𝒕𝒉𝒆𝒓𝒔 𝒚𝒐𝒖.
+
+-𝑰 𝒎𝒂𝒚 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒃𝒆 𝒐𝒇𝒇𝒕𝒂𝒃 𝒂𝒏𝒅 𝒏𝒐𝒕 𝒏𝒐𝒕𝒊𝒄𝒆 𝒑𝒖𝒃𝒍𝒊𝒄 𝒄𝒉𝒂𝒕. 𝑷𝒍𝒆𝒂𝒔𝒆 𝒘𝒉𝒊𝒔𝒑𝒆𝒓 𝒎𝒆 𝒇𝒐𝒓 𝒂𝒏𝒚𝒕𝒉𝒊𝒏𝒈.
+
+
+
+🍥˖⸂ ‎⟡ ˖ 𓈒꙳🐰𓂃𓈒𓏸
 
 
 
@@ -202,4 +203,5 @@ shoot into the steel
 ![IMG_2104](https://github.com/user-attachments/assets/59caee48-ad7b-4172-9b97-6f04251ece5b)
 <img width="99" height="56" alt="IMG_2105" src="https://github.com/user-attachments/assets/56626251-ff6f-43c1-a27e-829ba79807aa" />
 ![IMG_2106](https://github.com/user-attachments/assets/41c2e09c-9b56-4b1d-bc14-622e6b909ae5)
+<img width="689" height="559" alt="Untitled263_20251213192801" src="https://github.com/user-attachments/assets/1d59edf3-aeed-44a1-98ca-de56e163aa37" />
 
