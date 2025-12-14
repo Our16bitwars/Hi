@@ -161,7 +161,7 @@
 
 
 ![IMG_0837](https://github.com/user-attachments/assets/e204510d-fa4e-4bfe-bfa2-f75cf8a35b67) 
-She is coming closer
+
 
 
 
