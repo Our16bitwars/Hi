@@ -89,7 +89,7 @@
 [𝑻𝒉𝒆𝒊𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 ^-^](https://github.com/kkaitoshion)
 
 
--✧ Mafu/Yuki. she's one of my dearest friends too and she comforts me in er own way even when she's struggling. She makes me laugh and smile even when im sad. Ily ^^
+-✧ Mafu/Yuki. she's one of my friends too and she is kind to be around.
 
 [𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/Snowedribbqns)
 
