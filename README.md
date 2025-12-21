@@ -53,7 +53,7 @@
 
 𝑳𝒐𝒗𝒆𝒎𝒂𝒊𝒍𝒔 // 𝑯𝒐𝒏𝒐𝒓𝒂𝒃𝒍𝒆 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔♡ 💌
 
--✧ 𝑹𝒐𝒔𝒂𝒍𝒊𝒏𝒂 ♡ .  𝑺𝒉𝒆'𝒔 𝒕𝒉𝒆 𝒃𝒆𝒔𝒕𝒆𝒔𝒕 𝒕𝒉𝒊𝒏𝒈 𝒕𝒉𝒂𝒕 𝒆𝒗𝒆𝒓 𝒉𝒂𝒑𝒑𝒆𝒏𝒅 𝒕𝒐 𝒎𝒆 𝒂𝒏𝒅 𝑺𝒉𝒆'𝒔 𝒍𝒊𝒌𝒆 𝒇𝒂𝒎𝒊𝒍𝒚 𝒕𝒐 𝒎𝒆. 𝑺𝒖𝒑𝒑𝒐𝒓𝒕𝒊𝒏𝒈 𝒎𝒆, 𝒃𝒆𝒊𝒏𝒈 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆 𝒂𝒏𝒅 𝒂𝒍𝒘𝒂𝒚𝒔 𝒉𝒆𝒍𝒑𝒊𝒏𝒈 𝒎𝒆, 𝒆𝒔𝒑𝒆𝒄𝒊𝒂𝒍𝒍𝒚 𝒅𝒖𝒓𝒊𝒏𝒈 𝒅𝒂𝒓𝒌 𝒕𝒊𝒎𝒆𝒔. 𝑰 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖 𝒔𝒐 𝒎𝒖𝒄𝒉 𝒔𝒊𝒔<3 ![GIF image](https://github.com/user-attachments/assets/226e8d2e-a062-41c8-ad80-b62e5efa4406)
+-✧ 𝑹𝒐𝒔𝒂𝒍𝒊𝒏𝒂 ♡ .  𝑺𝒉𝒆'𝒔 𝒕𝒉𝒆 𝒃𝒆𝒔𝒕𝒆𝒔𝒕 𝒕𝒉𝒊𝒏𝒈 𝒕𝒉𝒂𝒕 𝒆𝒗𝒆𝒓 𝒉𝒂𝒑𝒑𝒆𝒏𝒅 𝒕𝒐 𝒎𝒆 𝒂𝒏𝒅 𝑺𝒉𝒆'𝒔 𝒍𝒊𝒌𝒆 𝒇𝒂𝒎𝒊𝒍𝒚 𝒕𝒐 𝒎𝒆. 𝑺𝒖𝒑𝒑𝒐𝒓𝒕𝒊𝒏𝒈 𝒎𝒆, 𝒃𝒆𝒊𝒏𝒈 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆 𝒂𝒏𝒅 𝒂𝒍𝒘𝒂𝒚𝒔 𝒉𝒆𝒍𝒑𝒊𝒏𝒈 𝒎𝒆,𝒎𝒂𝒌𝒊𝒏𝒈 𝒎𝒆 𝒍𝒂𝒖𝒈𝒉 𝒂𝒏𝒅 𝒎𝒂𝒌𝒆 𝒎𝒆 𝒔𝒎𝒊𝒍𝒆 𝒂 𝒓𝒆𝒂𝒍 𝒔𝒎𝒊𝒍𝒆. 𝒆𝒔𝒑𝒆𝒄𝒊𝒂𝒍𝒍𝒚 𝒅𝒖𝒓𝒊𝒏𝒈 𝒅𝒂𝒓𝒌 𝒕𝒊𝒎𝒆𝒔. 𝒔𝒉𝒆 𝒎𝒆𝒂𝒏𝒔 𝒆𝒗𝒆𝒓𝒚𝒕𝒉𝒏𝒈 𝒕𝒐 𝒎𝒆 𝒂𝒏𝒅 𝒔𝒉𝒆'𝒔 𝒎𝒚 𝒘𝒐𝒓𝒍𝒅 𝒂𝒏𝒅 𝒎𝒚 𝒆𝒗𝒆𝒓𝒚𝒕𝒉𝒊𝒏𝒈.. 𝒊 𝒉𝒐𝒑𝒆 𝒊 𝒅𝒐𝒏'𝒕 𝒍𝒐𝒔𝒆 𝒚𝒐𝒖<33 𝒚𝒐𝒖'𝒓𝒆 𝒕𝒉𝒆 𝒃𝒆𝒔𝒕𝒆𝒔𝒕 𝒔𝒊𝒔𝒕𝒆𝒓 𝒊 𝒄𝒐𝒖𝒍𝒅 𝒆𝒗𝒆𝒓 𝒂𝒔𝒌 𝒇𝒐𝒓. 𝑰 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖 𝒔𝒐 𝒎𝒖𝒄𝒉 <3  ![GIF image](https://github.com/user-attachments/assets/226e8d2e-a062-41c8-ad80-b62e5efa4406)
 
 
 [𝑯𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 <3](https://github.com/liminalheaven)
@@ -90,7 +90,7 @@
 [𝑻𝒉𝒆𝒊𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 ^-^](https://github.com/kkaitoshion)
 
 
--✧ Mafu/Yuki. she's one of my friends too and she is kind to be around. I like her presence in my life
+-✧ Mafu/Yuki. she's one of my friends too and she is kind to be around. I like her presence in my life and how kind she is and shes amazing 
 
 [𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃](https://github.com/Snowedribbqns)
 
