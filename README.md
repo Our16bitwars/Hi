@@ -95,10 +95,6 @@
 [𝑻𝒉𝒆𝒊𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 ^-^](https://github.com/kkaitoshion)
 
 
--✧ 𝑴𝒂𝒇𝒖/𝑴𝒂𝒕𝒕𝒆𝒐. 𝑻𝒉𝒂𝒏𝒌 𝒚𝒐𝒖 𝒇𝒐𝒓 𝒃𝒆𝒊𝒏𝒈 𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆 𝒆𝒗𝒆𝒏 𝒂𝒇𝒕𝒆𝒓 𝒆𝒗𝒆𝒓𝒚𝒕𝒉𝒊𝒏𝒈. 𝒀𝒐𝒖 𝒎𝒆𝒂𝒏 𝒂𝒍𝒐𝒕 𝒕𝒐 𝒎𝒆. 𝑻𝒉𝒂𝒏𝒌 𝒚𝒐𝒖 𝒇𝒐𝒓 𝒄𝒐𝒎𝒇𝒐𝒓𝒕𝒊𝒏𝒈 𝒎𝒆. 𝑻𝒉𝒂𝒏𝒌 𝒚𝒐𝒖.. 𝑰 𝒄𝒂𝒏'𝒕 𝒕𝒉𝒂𝒎𝒌 𝒚𝒐𝒖 𝒀𝒐𝒖'𝒓𝒆 𝒔𝒐 𝒌𝒊𝒏𝒅. 𝑰 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖 𝒔𝒊𝒔𝒕𝒆𝒓.![f77d3205d71afb7e1375f9c8ca24bdf0d8c94756 gifv](https://github.com/user-attachments/assets/dce4886e-73b6-405e-b229-e3b7b2d8c6de)
-
-
-[𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 :p](https://github.com/Snowedribbqns)
 
 
 -✧ Mafufu. She's so kind and amazing to be around! thank you for being my friend even after i struggled with saying hi.. You're so amazing to be around, i love talking with u! its really fun!
