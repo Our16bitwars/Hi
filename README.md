@@ -97,9 +97,11 @@
 
 
 
--✧ Mafufu. She's so kind and amazing to be around! thank you for being my friend even after i struggled with saying hi.. You're so amazing to be around, i love talking with u! its really fun!
+-✧ Kim. She's so kind and amazing to be around! thank you for being my friend even after i struggled with saying hi.. You're so amazing to be around, i love talking with u! its really fun! Thank you for comforting me when im at my lowest.
 
 [her github!!](https://github.com/mafuiisato)
+
+
 
 
 
