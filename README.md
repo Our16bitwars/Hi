@@ -44,15 +44,19 @@
 
 𝑪𝒍𝒐𝒔𝒆 𝒇𝒓𝒊𝒆𝒏𝒅𝒔. ★
 
-< 𝒓𝒐𝒔𝒂𝒍𝒊𝒏𝒂 & 𝒓𝒂𝒆 3 <- 𝒎𝒚 𝒃𝒇𝒇𝒔 / 𝒇𝒂𝒎𝒊𝒍𝒚  ♡
+< 𝒓𝒐𝒔𝒂𝒍𝒊𝒏𝒂 & 𝒓𝒂𝒆 3 <- 𝒎𝒚 𝒃𝒇𝒇𝒔 / 𝒇𝒂𝒎𝒊𝒍𝒚
 
+☆ 𝑲𝒊𝒎
+
+☆ 𝑵𝒆𝒄𝒓𝒐
+  
 ♡𝑯𝒂𝒓𝒖
 
-♡𝑻𝒐𝒚𝒂/𝒎𝒂𝒅𝒑𝒐𝒄𝒌
+☆𝑻𝒐𝒚𝒂/𝒎𝒂𝒅𝒑𝒐𝒄𝒌
 
-♡ 𝑵𝒂𝒕
+☆ 𝑵𝒂𝒕
 
-♡ 𝒀𝒆𝒐𝒏
+☆ 𝒀𝒆𝒐𝒏
 
 𝑳𝒐𝒗𝒆𝒎𝒂𝒊𝒍𝒔 // 𝑯𝒐𝒏𝒐𝒓𝒂𝒃𝒍𝒆 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔♡ ![9LRlyxr](https://github.com/user-attachments/assets/9fc4a1f6-7b70-4dc0-8071-1e2167c3c595)
 
@@ -103,7 +107,7 @@
 
 
 
--✧ Mafu. You're an amazing friend to be around and you're really fun to be with. I love you alot. Thank you for being there for me at my lowest and etc. ᴀɴᴅ ᴛʜᴀᴍᴋ ʏᴏᴜ ғᴏʀ ғᴏʀɢɪᴠɪɴɢ ᴍᴇ. - 04.01.25 you're an amazing sister
+-✧ Mafu. You're an amazing friend to be around and you're really fun to be with. I love you alot. Thank you for being there for me at my lowest and etc. ᴀɴᴅ ᴛʜᴀᴍᴋ ʏᴏᴜ ғᴏʀ ғᴏʀɢɪᴠɪɴɢ ᴍᴇ. - 04.01.26 you're an amazing sister
 
 [Her github ^^](https://github.com/Snowedribbqns)
 
