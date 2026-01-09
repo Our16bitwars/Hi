@@ -107,12 +107,6 @@
 
 
 
--✧ Mafu. You're an amazing friend to be around and you're really fun to be with. I love you alot. Thank you for being there for me at my lowest and etc. ᴀɴᴅ ᴛʜᴀᴍᴋ ʏᴏᴜ ғᴏʀ ғᴏʀɢɪᴠɪɴɢ ᴍᴇ. - 04.01.26 you're an amazing sister
-
-[Her github. ](https://github.com/Snowedribbqns)
-
-
-
 
 𝑻𝒉𝒊𝒔 𝒇𝒐𝒏𝒕 = 𝒔𝒑𝒆𝒄𝒊𝒂𝒍 𝒑𝒆𝒐𝒑𝒍𝒆
 
