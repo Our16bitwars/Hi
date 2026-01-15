@@ -109,6 +109,11 @@
 
 
 
+-✧ Uhh Mafu. Shes an amazing friend and i like being around her, she's like a sister to me and thank u for staying ily siss
+
+
+[Her github ok](https://github.com/Snowedribbqns)
+
 
 
 
