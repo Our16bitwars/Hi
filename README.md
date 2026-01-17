@@ -80,12 +80,6 @@
 [𝑴𝒚 𝒐𝒏𝒍𝒊𝒏𝒆 𝒎𝒐𝒎'𝒔 𝒈𝒉 :3](https://github.com/mmadpokk)
 
 
--✧ Hana. She's someone really special to me and i'm glad i'm friends with her.☆ ![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/61d94017-4e16-4906-964c-ad9064eb3396)
-
-
-
-[𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃 :3](https://github.com/souIlove)
-
 
 -✧ Nat. I don't have to say alot about you. You're extremely amazing and fun to have around. I love your jokes about kaito n stuff. ❆ ![IMG_2108](https://github.com/user-attachments/assets/bbc63b41-16a5-439c-aa66-2a0d78ca81ba)
 
@@ -109,7 +103,7 @@
 
 
 
--✧ Uhh Mafu. Shes an amazing friend and i like being around her, she's like a sister to me and thank u for staying ily siss
+-✧ Uhh Mafu. Shes an amazing friend and i like being around her, she's like a sister to me and thank u for staying with me through my lowest and stuff. Sorry for my friend note being dry at first. Ilysm btw
 
 
 [Her github ok](https://github.com/Snowedribbqns)
