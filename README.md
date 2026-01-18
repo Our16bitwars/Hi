@@ -103,10 +103,10 @@
 
 
 
--✧ Uhh Mafu. Shes an amazing friend and i like being around her, she's like a sister to me and thank u for staying with me through my lowest and stuff. Sorry for my friend note being dry at first. Ilysm btw
+-✧ Mafu. She's an amazing friend and i like being around her, she's like a sister to me and thank you for staying with me through my lowest and stuff. Sorry for my friend note being dry at first. I like your presence in my life and i think youre really kind. I luv ya
 
 
-[Her github ok](https://github.com/Snowedribbqns)
+[her github .](https://github.com/Snowedribbqns)
 
 
 
